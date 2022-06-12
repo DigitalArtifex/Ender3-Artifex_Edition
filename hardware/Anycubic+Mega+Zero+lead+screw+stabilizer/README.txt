@@ -1,0 +1,1 @@
+Anycubic Mega Zero lead screw stabilizer by drogica on Thingiverse: https://www.thingiverse.com/thing:4704801
